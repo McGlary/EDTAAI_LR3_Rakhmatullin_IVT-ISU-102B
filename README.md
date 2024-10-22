@@ -1,1 +1,0 @@
-# EDTAAI_LR3_Rakhmatullin_IVT-ISU-102B
